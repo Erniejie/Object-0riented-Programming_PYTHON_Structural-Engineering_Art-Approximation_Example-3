@@ -1,0 +1,1 @@
+# Object-0riented-Programming_PYTHON_Structural-Engineering_Art-Approximation_Example-3
